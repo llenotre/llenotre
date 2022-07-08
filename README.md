@@ -6,4 +6,4 @@ Spoken languages:
 - Fluent: 🇫🇷🇬🇧
 - Intermediate level: 🇪🇸🇸🇪
 - Beginner level: 🇨🇳
-- Languages I'd like to learn one day: 🇩🇪🇷🇺
+- Languages I'd like to learn one day: 🇩🇪🇮🇹🇺🇦
